@@ -82,7 +82,7 @@ I turn ideas into robust, production-ready platforms across industries—deliver
 ## 📫 Let's Connect
 
 - **Email:** abdo.a4med@gmail.com  
-- **LinkedIn:** [Abdelrahman Ahmed Abdelrahman Qassem](https://www.linkedin.com/in/your-profile)
+- **LinkedIn:** [Abdelrahman Ahmed](https://www.linkedin.com/in/abdelrahman-aboelkassem/)
 
 ---
 
